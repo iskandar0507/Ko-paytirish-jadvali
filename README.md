@@ -1,1 +1,1 @@
-# ko-paytirish
+# Ko-paytirish-jadvali
